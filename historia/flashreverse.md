@@ -1,3 +1,0 @@
-#flash
-
-Según trascendió, fue el Ministerio Público —controlado ahora por el fiscal general, Tarek William Saab, impuesto hace casi tres semanas por la chavista Asamblea Constituyente en sustitución de la titular del despacho, Luisa Ortega Díaz, hoy en el exilio— quien solicitó la medida. El propio Saab adelantó el martes pasado la apertura de una investigación penal contra Tintori por el hallazgo de esos cuantiosos caudales. “Por ser esto un presunto delito que implica, por supuesto, vinculación con las legislaciones penales vigentes, el Ministerio Público procederá a investigar”, dijo Saab el martes al informar del decomiso.
